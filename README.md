@@ -4,4 +4,4 @@
   <div id="header" align="center">
 ♡⸝⸝ʜᴇʏ, ᴡᴇ ɢᴏ ᴄʀᴀᴢʏ ᴛᴏɢᴇᴛʜᴇʀ ૮₍ ´ ꒳ `₎ა 
 <div id="header" align="right">
-૮◞ ‸ ◟ ა 
+૮◞ ‸ ◟ ა 𝘷𝘺𝘢𝘳 𝘬𝘪𝘴𝘴𝘦𝘳. . .

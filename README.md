@@ -12,7 +12,3 @@
 
 
 
-<div id="header" align="center">
-literally canon:
-</a>
-<img src="https://media1.tenor.com/m/G_gPGdPvEdEAAAAd/kiss-smile.gif" width="200"/>
